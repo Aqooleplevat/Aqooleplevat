@@ -2,7 +2,8 @@
 - 👀 I’m interested in кодировка в пайтон 3
 - 🌱 I’m currently learning абсолютно всему!
 - 💞️ I’m looking to collaborate on разработчиков
-- 📫 How to reach me telegram @aqooleplevat 
+- 📫 How to reach me telegram @aqoolele
+- 
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
